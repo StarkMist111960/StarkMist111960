@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @StarkMist111960
 - 👀 I’m interested in video games and coding
 - 🌱 I’m currently learning C++
-- 💞️ I’m looking to collaborate on nothing, I don't like working with people.
+- 💞️ I’m looking to collaborate on nothing, I don't like working with people, I am open to collaboration IF, and only IF the opportunity is entirely explained in an email, if the sender does not meet this requirement, their email will either be ignored or angrily responded to, thank you. 
 - 📫 How to reach me: You can reach me at my email address starkmist111960@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Idk
